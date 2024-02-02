@@ -1,5 +1,0 @@
-Luke Jaeger was born with a tool belt on, and can’t seem to stop creating. A native of Brooklyn, he’s lived and traveled in cities across the globe, but his work continually returns to the boilerplate metal and the clackety tracks of the NY subways of his youth. He attended Yale University, left for a BFA in animation at the School of the Museum of Fine Arts (Boston), and earned an MFA in film/video and sculpture at the Massachusetts College of Art and Design.
-
-He works at the [Fimbel Maker and Innovation Lab](https://www.mtholyoke.edu/academics/centers-and-facilities/fimbel-maker-innovation-lab) at Mount Holyoke College, where he teaches students to use ancient and cutting-edge tools and machines, and facilitates interdisciplinary collaborations throughout the campus. His films have been invited to festivals worldwide, and he’s proudly served on festival juries as well.
-
-He is the recipient of arts grants from the Northampton Arts Council and the Massachusetts Cultural Council, as well as multiple residencies at [Yaddo](https://yaddo.org/) and at [MacDowell.](https://www.macdowell.org/artists/luke-jaeger)
